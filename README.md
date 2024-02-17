@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on #CybersecurityProjects 
 - 📫 How to reach me : "blackdevil300219@gmail.com"
 - 😄 Pronouns: I + Me + Ours
-- ⚡ Fun fact: "sometimes i even forget why am i wandering here 😅😅"
+- ⚡ Fun fact: "sometimes I even forget why I am wandering here 😅😅"
 
 <!---
 LordLucifer24/LordLucifer24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
